@@ -5,7 +5,9 @@
 # 💫 About Me:
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
-👩 [**Asha Rajan**](www.linkedin.com/in/nisha-ng-gupta)<br>🥇 Certified Data Analyst | B.Tech <img align="right" width=200px height=200px alt="side_sticker" src="https://user-images.githubusercontent.com/74038190/213760677-e45ca5f7-d1aa-4c2c-91e0-573819287304.gif" /> <br>🎯 Focused but Innovative<br>👼 Self - Motivated | Quick learner <br>🧫 Bringing my dreams into reality<br>🤝 Glad to connect with  you to "learn & grow" together<br>📞 + 91-8943804009 | Whatsapp | Visakhapatnam, India<br>📩 merlin2ash@gmail.com <br><br>
+👩 [**Asha Rajan**](www.linkedin.com/in/nisha-ng-gupta)<br>🥇 Certified Data Analyst | B.Tech <img align="right" width=200px height=200px alt="side_sticker" src="https://user-images.githubusercontent.com/74038190/213760677-e45ca5f7-d1aa-4c2c-91e0-573819287304.gif" /> <br>🎯 Focused but Innovative<br>👼 Self - Motivated | Quick learner <br>🧫 Bringing my dreams into reality<br>🤝 Glad to connect with  you to "learn & grow" together<br>💞️ I’m looking to collaborate on Data Analytics based projects <br>
+📫 How to reach me https://www.linkedin.com/in/asharajanda/
+<br> 📞 + 91-8943804009 | Whatsapp | Visakhapatnam, India<br>📩 merlin2ash@gmail.com <br><br>
 🧫  **Fun Fact ->  Passionné par les données<img src="https://media.giphy.com/media/qjqUcgIyRjsl2/giphy.gif" width="50" />
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br>
 
