@@ -1,12 +1,20 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Architects+Daughter&size=30&color=F7AA94&lines=Hi+%F0%9F%91%8B+It's+Asha;I'm+a+Data+Analyst)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=300&pause=600&color=7EF7DD&multiline=true&random=false&width=435&lines=+%F0%9F%91%8B++ASHA+RAJAN+-+%F0%9F%91%89+Data+Analyst+%E2%8C%A8%EF%B8%8F)](https://git.io/typing-svg)
+
+<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
 # 💫 About Me:
-🧑‍💻  [**Asha Rajan**](www.linkedin.com/in/asharajanda)<img align="right" width=200px height=200px alt="side_sticker" src="https://media1.giphy.com/media/Y9jnMrKtoulD3ugkJs/giphy.gif?cid=ecf05e478bixwex3msowdz6dsr57n7b0w32oj2wjtxu0vw99&ep=v1_gifs_related&rid=giphy.gif&ct=s" /><br>🥇  B.Tech in **Electronics and Communication Engineering** <br>🎯  Goal-oriented<br>🤓  Optimistic<br>🤝 
- Glad to connect with any Data Enthusiasts<br>📞  + 91-8943804009 | Whatsapp | Visakhapatnam. India<br>📩   merlin2ash@gmail.com <br>🧫  **Fun Fact ->** Absolutely Easygoing<img src="https://media.giphy.com/media/qjqUcgIyRjsl2/giphy.gif" width="50" />
- 
- 
- ***<ul align="center">DATA IS A TOOL FOR ENHANCING INTUITION</ul>***<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
- <br><br>#powerbi #dataanalysis #msexcel #sql<br>#python #statistics #chatgpt #ai 
+<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+
+👩 [**Asha Rajan**](www.linkedin.com/in/nisha-ng-gupta)<br>🥇 Certified Data Analyst | B.Tech <img align="right" width=200px height=200px alt="side_sticker" src="https://user-images.githubusercontent.com/74038190/213760677-e45ca5f7-d1aa-4c2c-91e0-573819287304.gif" /> <br>🎯 Focused but Innovative<br>👼 Self - Motivated | Quick learner <br>🧫 Bringing my dreams into reality<br>🤝 Glad to connect with  you to "learn & grow" together<br>📞 + 91-8943804009 | Whatsapp | Visakhapatnam, India<br>📩 merlin2ash@gmail.com <br><br>
+🧫  **Fun Fact ->  Passionné par les données<img src="https://media.giphy.com/media/qjqUcgIyRjsl2/giphy.gif" width="50" />
+<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br>
+
+#powerbi #dataanalysis #msexcel #sql<br>#python #statistics #chatgpt #ai 
+<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+
+ ***<ul align="center">Unlock the chatter of data, Are you tuned in for the revelation ...??</ul>***
+ <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+
 
 
 
